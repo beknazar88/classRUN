@@ -1,6 +1,0 @@
-# Beknazar
-### dkjfdhskdjhfksjhgsjlh
-dlgjhfhljsfhgljsfhglsghljshgljh
-вммамамвм
-амаммам
-мавмммммммммммммммммммммммммммммммммммммм
