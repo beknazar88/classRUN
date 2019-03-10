@@ -1,2 +1,2 @@
 # Aibek uulu Beknazar
-0708800048
+Tel:0708800048
