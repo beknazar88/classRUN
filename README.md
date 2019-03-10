@@ -1,1 +1,1 @@
-# My name is Beknazar
+# Beknazar Aibek uulu
